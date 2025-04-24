@@ -1,2 +1,2 @@
-# Grupo-N-12-F-R
+# Grupo-N-12-F&R
 Francisco Aguirre y Rocio Milanese
